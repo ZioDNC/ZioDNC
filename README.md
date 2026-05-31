@@ -20,7 +20,7 @@ Also,I'm often AFK due to being busy with other things, so if you try to talk to
 
 When you first hang out with me, you might find me a bit quiet, but rest assured, the longer we hang out, the more energetic I'll be.
 
-## And that's some information about me in pony town hehe.>⩊<.ᐟ
+## And that's some information about me, hehe.>⩊<.ᐟ
 
 ![Image](https://github.com/user-attachments/assets/2e28567d-cb9d-49d7-b44e-1131acac52d9)
-Luv Phainon>< .𐙚 ̊𓂃˖˳·˖ ִֶָ ⋆
+## Luv Phainon>< .𐙚 ̊𓂃˖˳·˖ ִֶָ ⋆
