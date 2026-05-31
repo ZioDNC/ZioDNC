@@ -7,7 +7,7 @@
 
 I'm not very good at English, please understand. I used a translator.૮◞ ‸ ◟ ა
 
-## 𓍢ִ໋🌷͙֒ Let me introduce myself
+##  Let me introduce myself
 
 As mentioned above, my name is Zio!
 and I am Vietnamese˚ʚ♡ɞ˚
